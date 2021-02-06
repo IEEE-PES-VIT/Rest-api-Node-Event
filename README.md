@@ -8,3 +8,4 @@ https://drive.google.com/file/d/1Kuw4wJhuSA-Fz8uQIMP9wx8zCTLcd1bz/view
 
 ### Image of the Webinar
 
+![WhatsApp Image 2021-02-06 at 5 21 06 PM](https://user-images.githubusercontent.com/55324916/107119500-00af0380-68ae-11eb-8d05-95f6e57874b0.jpeg)
